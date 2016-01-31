@@ -1,6 +1,6 @@
-# Regelement Wisselbeker Bernard Verbeke
+# Reglement Wisselbeker Bernard Verbeke
 
-## Voorwaardes en Condities
+## Voorwaardes en condities
 1. De eerste persoon die op een gezamelijk evenement in het publiek de slaap vat zal gezien worden als kandidaat verdediger voor de wisselbeker
 
 ## Uitzonderingen
@@ -9,7 +9,7 @@
 
 In het geval van betwistingen heeft het organizerende committee altijd het laatste woord. Beslissingen zullen unaniem genomen worden.
 
-## Organizerende committee (in alphabetische volgorde)
+## Organizerende committee (in alfabetische volgorde)
 - Broos Stefan
 - Debusschere Tom
 - Vanderfaeillie Dieter
