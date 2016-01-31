@@ -14,4 +14,5 @@ In het geval van betwistingen heeft het organizerende committee altijd het laats
 - Vanderfaeillie Dieter
 
 ## Lijst van (voorgaande) titelverdedigers
-- Verbeke Alexander (07-02-2014 - ?)
+- Verbeke Alexander (07-02-2014 - 30-01-2015)
+- Devry Michiel (30-01-2015 - ???)
