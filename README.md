@@ -1,6 +1,7 @@
 # Regelement Wisselbeker Bernard Verbeke
 
 ## Voorwaardes en Condities
+1. De eerste persoon die op een gezamelijk evenement in het publiek de slaap vat zal gezien worden als kandidaat verdediger voor de wisselbeker
 
 ## Uitzonderingen
 
