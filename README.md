@@ -1,2 +1,14 @@
-# Wisselbeker-Bernard-Verbeke
-Repo aangemaakt om de regels van de legendarische wisselbeker Bernard Verbeken te tracken
+# Regelement Wisselbeker Bernard Verbeke
+
+## Voorwaardes en Condities
+
+## Uitzonderingen
+
+## In het geval van betwistingen
+
+In het geval van betwistingen heeft het organizerende committee altijd het laatste woord. Beslissingen zullen unaniem genomen worden.
+
+## Organizerende committee (in alphabetische volgorde)
+- Broos Stefan
+- Debusschere Tom
+- Vanderfaeillie Dieter
