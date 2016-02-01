@@ -13,6 +13,10 @@
 
 ## Uitzonderingen
 1. In het uitzonderlijke geval dat de wisselbeker toegekend kan worden aan een lid van het organizerende committee dienen de overige leden zich onafhankelijk op te stellen bij het toekenning van de overwinning
+2. De beker zal niet toegekend worden in geval van (organizerende committee heeft het laatste woord):
+  - ziekte of fysieke beperkingen (dronkenschap buiten beschouwing gelaten)
+  - de leeftijd van de kandidaat ouder is dan 65 jaar
+  - manipulatie of een duidelijk geval van spelbederf
 
 ## In het geval van betwistingen
 
