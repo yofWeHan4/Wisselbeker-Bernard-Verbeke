@@ -1,9 +1,16 @@
 # Reglement Wisselbeker Bernard Verbeke
 
 ## Voorwaardes en condities
-1. De eerste persoon die op een gezamelijk evenement in het publiek de slaap vat zal gezien worden als kandidaat verdediger voor de wisselbeker
+1. De persoon die op een gezamelijk evenement in het publiek de slaap vat zal gezien worden als kandidaat verdediger voor de wisselbeker
+2. In het geval dat meerdere personen tijdens een publiek evenement de slaap vallen zal de wisselbeker overhandigd worden aan de eerste persoon die de slaap gevat heeft die avond en/of nacht
+3. Om in aanmerking te komen voor de wisselbeker moet de desbetreffende kandidaat de slaap gevat hebben in een publieke ruimte, of een ruimte die voor het ganse publiek toegankelijk was die avond
+4. Er dient steeds een lid van het organizerende committee aanwezig te zijn om de geldigheid van de overwinning te controleren, alsook om een goede gang van zaken te verzekeren
+5. Indien er twijfel is over de lichamelijke conditie waarin een kandidaat verdediger zich bevind kan er gebruik gemaakt worden van de volgende manuele controle technieken:
+  - Knijpen in de wang als verassingselement
+  - beschilderen van het gezicht met watervaste verf
 
 ## Uitzonderingen
+1. In het uitzonderlijke geval dat de wisselbeker toegekend kan worden aan een lid van het organizerende committee dienen de overige leden zich onafhankelijk op te stellen bij het toekenning van de overwinning
 
 ## In het geval van betwistingen
 
