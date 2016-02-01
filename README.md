@@ -16,4 +16,4 @@ In het geval van betwistingen heeft het organizerende committee altijd het laats
 
 ## Lijst van (voorgaande) titelverdedigers
 - Verbeke Alexander (07-02-2014 - 30-01-2015)
-- De Vry Michiel (30-01-2015 - ???)
+- De Vry Michiel (30-01-2015 - now)
