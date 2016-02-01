@@ -12,7 +12,7 @@
 7. Om toekomstige geschillen over de geldigheid van een overwinning te vermijden is het wenselijk dat de overwinningsdaad fotografisch vastgelegd wordt. Niet alleen vergemakkelijkt dit de toekenningsprocedure; het is tevens een geste naar de gehuldigde toe, die op deze manier zijn knappe prestatie achteraf kan bewonderen
 
 ## Uitzonderingen
-1. In het uitzonderlijke geval dat de wisselbeker toegekend kan worden aan een lid van het organizerende committee dienen de overige leden zich onafhankelijk op te stellen bij het toekenning van de overwinning
+1. In het uitzonderlijke geval dat de wisselbeker toegekend kan worden aan een lid van het organizerende committee dienen de overige leden zich onafhankelijk op te stellen de het toekenning van de overwinning
 2. De beker zal niet toegekend worden in geval van (organizerende committee heeft het laatste woord):
   - ziekte of fysieke beperkingen (dronkenschap buiten beschouwing gelaten)
   - de leeftijd van de kandidaat ouder is dan 65 jaar
