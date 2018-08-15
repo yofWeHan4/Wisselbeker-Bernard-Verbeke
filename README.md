@@ -15,11 +15,12 @@
 1. In het uitzonderlijke geval dat de wisselbeker toegekend kan worden aan een lid van het organizerende committee dienen de overige leden zich onafhankelijk op te stellen over de toekenning van de overwinning
 2. De beker zal niet toegekend worden in geval van (organizerende committee heeft het laatste woord):
   - ziekte of fysieke beperkingen (dronkenschap of andere psycho-actieve middelen uit eigen initiatief genomen) buiten beschouwing gelaten.
-  - de leeftijd van de kandidaat ouder is dan 95 jaar
+  - de leeftijd van de kandidaat ouder is dan 70 jaar
   - manipulatie of een duidelijk geval van spelbederf
 
 ## Wie komt in aanmerking?
-Iedereen die in de uitgebreide vriendenkring voorkomt van minstens twee leden van het organizerende committee.
+Iedereen die in de uitgebreide vriendenkring voorkomt van minstens twee leden van het organizerende committee. Minimum voorwaarde is wel dat de kandidaat-winnaar op de hoogte is van het bestaan van de wisselbeker voordat hij in aanmerking komt tot het winnen ervan. De wisselbeker kan dus nooit zomaar aan iemand toegekend worden zonder dat de gelukkige op de hoogte is (let wel, het is toegestaan om de briefing te laten plaatsvinden wanneer de betrokkenen niet over hun volledige geestelijke mogelijkheden bezitten).
+In het uitzonderlijke geval dat de winnaar de Nederlandse taal niet of slechts gebrekkig machtig is, dient deze door een speciaal daartoe aangeduid (beslissing van de voorzitter) lid van het Organizerend committee op de hoogte gebracht te worden in een taal die deze persoon machtig is. Indien dit uiterlijk 60 uur na het winnen van deze prijs nog niet gebeurd is, wordt de prijs toegewezen aan de laatste rechtmatige eigenaar (Dit kan eventueel een persoon zijn die op hetzelfde evenement in slaap gevallen is). Het Organizerend committee zal verder ook stappen ondernemen om te voorzien in een gepaste vertaling van het reglement.
 
 ## In het geval van betwistingen
 
