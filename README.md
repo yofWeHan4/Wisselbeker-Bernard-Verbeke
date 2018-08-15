@@ -18,7 +18,7 @@ Omdat iemand van dat statuut natuurlijk zeldzaam is en opdat dit sujet de geschi
 7. Om toekomstige geschillen over de geldigheid van een overwinning te vermijden is het wenselijk dat de overwinningsdaad fotografisch vastgelegd wordt. Niet alleen vergemakkelijkt dit de toekenningsprocedure; het is tevens een geste naar de gehuldigde toe, die op deze manier zijn knappe prestatie achteraf kan bewonderen
 8. De huidige houder van de wisselbeker zal deze in goede conditie bewaren, zal deze geregeld schoonmaken en als een goede huisvader onderhouden. 
 9. De bezitter van de wisselbeker zal deze op een duidelijk zichtbare plaats tentoonstellen en zal deze spontaan presenteren bij eventueel bezoek van leden van het Organizerende committee. 
-10.In het geval van duidelijke overtredingen tegen de geest van het reglement is een aanwezig lid van het Organizerende committee gemachtigd om supplementaire maatregelen voor te stellen.
+10. In het geval van duidelijke overtredingen tegen de geest van het reglement is een aanwezig lid van het Organizerende committee gemachtigd om supplementaire maatregelen voor te stellen.
 
 
 ## Uitzonderingen
