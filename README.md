@@ -47,5 +47,4 @@ Elkeen kan voorstellen indienen om het regelement aan te passen. Doordachte voor
 
 
 ## Lijst van (voorgaande) titelverdedigers
-- Verbeke Alexander (07-02-2014 - 30-01-2015)
-- De Vry Michiel (30-01-2015 - now)
+Voor een lijst van de winnaard verwijzen we naar het document `Documentatie (potentiele) Winnaars`.
