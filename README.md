@@ -39,6 +39,11 @@ In het uitzonderlijke geval dat de winnaar de Nederlandse taal niet of slechts g
 In het geval van betwistingen heeft het organizerende committee altijd het laatste woord. Beslissingen zullen unaniem genomen worden.
 
 
+## Aanpassingen aan het reglement.
+
+Een minimum van 74% van de uitgebrachte stemmen is vereist (met een minimum van 3 stemmen) om veranderingen aan te brengen in de de basisreglementering. Dit dient uiterlijk in een termijn van 2 maanden te gebeuren na het indienen van deze motie. Het volledige reglement dient wel nog eerst unaniem goedgekeurd worden door het originele Organizerende committee.
+
+
 ## Lijst van (voorgaande) titelverdedigers
 - Verbeke Alexander (07-02-2014 - 30-01-2015)
 - De Vry Michiel (30-01-2015 - now)
