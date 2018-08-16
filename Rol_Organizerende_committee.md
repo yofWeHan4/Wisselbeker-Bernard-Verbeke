@@ -1,3 +1,5 @@
+Laat het ook gesteld zijn dat deze een procedure ad hoc kan overrulet worden door de cooperatie van genoeg leden van het Organizerende committee. (zoals ook beschreven in de procedure).
+
 ## Uitbreiding van het Organizerende committee:
 
 Het organizerende committee zal altijd aangevuld worden tot minstens 4 leden. 
@@ -6,8 +8,7 @@ met minstens een jaar ancienniteit. Na voordracht van een een kandidaat-lid vind
 stemming plaats via internet of in persona (specifieke medium en details van de procedure worden beslist
 door de voorzitter of zijn plaatsvervanger). 
 
-Een kandidaat lid zal slechts aanvaard worden bij het behalen van minstens 1/3 + 1 van de stemmen (met een minimum van 3)
-uitgebracht door het Organizerende committee.
+Een kandidaat lid zal slechts aanvaard worden bij het behalen van minstens 51% van de uitgebrachte stemmen (met een minimum van 3 toegekende) uitgebracht door leden van het Organizerende committee.
 
 
 ## De Rol van de Voorzitter
@@ -23,7 +24,7 @@ Mits een tijdslimiet vooraf is vastgesteld en gecommuniceerd krijgt de Voorzitte
 kan gebruiken; dit verbindt de Voorzitter er wel toe om de tijdslimiet na te leven. 
 2. Beslissen over de manier waarop een stemming plaatsvindt.
 3. Een verantwoordelijke aanwijzen voor het communiceren over wat plaatsvindt.
-4. De Voorzitter is ook de eerste in lijn om de rol van de EreGeneraal over te nemen. Deze rol is wel optioneel.
+4. De Voorzitter is ook de eerste in lijn om de rol van de EreGeneraal over te nemen. Dit is echter wel optioneel.
 
 Specifiek aan de rol van de Voorzitter:
 1. Mits de Voorzitter niet aanwezig is of zich niet in de mogelijkheid bevindt om zijn rol uit te oefenen, 
@@ -49,14 +50,14 @@ De EreGeneraal wordt aangemoedigd om het voortouw te nemen in de Viering van de 
 
 ## De Rol van de Secretaris:
 
-De secretaris wordt automatisch vervanger in afwezigheid van de Voorzitter. Mits ook de secretaris in de onmogelijkheid verkeert om deze functie waar te nemen; dan wordt de verantwoordelijkheid van de functie van de functie overgedragen volgens de procedure beschreven in ## De rol van de Voorzitter. 
+De secretaris wordt automatisch vervanger in afwezigheid van de Voorzitter. Mits ook de secretaris in de onmogelijkheid verkeert om deze functie waar te nemen; dan wordt de verantwoordelijkheid van de functie van de functie overgedragen volgens de procedure beschreven in ## De rol van de Voorzitter. De Secretaris is ook degene waarop beroep gedaan wordt om de regels te interpreteren wanneer er onduidelijkheid is binnen het Uitvoerende committee; mits de Secretaris onwillig is of onbekwaam, wordt de rol tijdelijk aan iemand anders toegewezen volgens onderstaande procedure.
 
-Een secretaris mag beslissen om zelf uit de rol te treden; in dit geval krijgt de Voorzitter 10% van de stemmen om een nieuwe Secretaris aan te duiden bovenop zijn normale stemmengehalte en krijgt de oud-Secretaris ook een bonus van 25% van de stemmen bovenop zijn normale stemmengehalte. De standaard tijdslimiet voor deze stemming is vastgelegd op 14 dagen.
+Een secretaris mag beslissen om zelf uit de rol te treden; in dit geval krijgt de Voorzitter 10% van de stemmen om een nieuwe Secretaris aan te duiden bovenop zijn normale stemmenaantal en krijgt de oud-Secretaris ook een bonus van 25% van de stemmen bovenop zijn normale stemmengehalte. De standaard tijdslimiet voor deze stemming is vastgelegd op 14 dagen. De gewillige kandidaat met het hoogste aantal stemmen krijgt de functie.
 
 
 ## Verwijderen van stoorzenders uit het Organizerende committee:
 
-Moest het gebeuren dat er zich partijdige, onverantwoordelijke, passieve of onbetrouwbare mensen in het Organizerende committee bevinden dan is er een procedure voorzien om dit element uit zijn rol te zetten. Voor een gewoon lid van het Organizerende committee is een meerderheid van 51% van de stemmen genoeg (met een minimum van 3 stemmen); in het geval van een Secretaris loopt dit op tot een meerderheid van 61% van de stemmen (uiteraard ook met een minimum van 3 stemmen) en voor de voorzitter loopt dit op naar een meerderheid van 76% van de stemmen. De EreGeneraal fungeert in deze als een normaal lid van het Organizerende committee. De standaard tijdslimiet voor deze stemming is vastgelegd op 14 dagen.
+Moest het gebeuren dat er zich partijdige, onverantwoordelijke, passieve of onbetrouwbare mensen in het Organizerende committee bevinden dan is er een procedure voorzien om dit element uit zijn rol te zetten. Voor een gewoon lid van het Organizerende committee is een meerderheid van 51% van de uitgebrachte stemmen genoeg (met een minimum van 3 toegekende stemmen); in het geval van een Secretaris loopt dit op tot een meerderheid van 61% van de uitgebrachte stemmen (uiteraard ook met een minimum van 3 toegekende stemmen) en voor de voorzitter loopt dit op naar een meerderheid van 76% van de uitgebrachte stemmen. De EreGeneraal fungeert in deze als een normaal lid van het Organizerende committee. De standaard tijdslimiet voor deze stemming is vastgelegd op 14 dagen.
 
 
 ## Procedure tot ontbinden van het Organizerende committee:
