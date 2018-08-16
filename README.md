@@ -28,23 +28,21 @@ Omdat iemand van dat statuut natuurlijk zeldzaam is en opdat dit sujet de geschi
   - de leeftijd van de kandidaat ouder is dan 70 jaar
   - manipulatie of een duidelijk geval van spelbederf
 
+
 ## Wie komt in aanmerking?
 Iedereen die in de uitgebreide vriendenkring voorkomt van minstens twee leden van het organizerende committee. Minimum voorwaarde is wel dat de kandidaat-winnaar op de hoogte is van het bestaan van de wisselbeker voordat hij in aanmerking komt tot het winnen ervan. De wisselbeker kan dus nooit zomaar aan iemand toegekend worden zonder dat de gelukkige op de hoogte is (let wel, het is toegestaan om de briefing te laten plaatsvinden wanneer de betrokkenen niet over hun volledige geestelijke mogelijkheden bezitten).
 In het uitzonderlijke geval dat de winnaar de Nederlandse taal niet of slechts gebrekkig machtig is, dient deze door een speciaal daartoe aangeduid (beslissing van de voorzitter) lid van het Organizerend committee op de hoogte gebracht te worden in een taal die deze persoon machtig is. Indien dit uiterlijk 60 uur na het winnen van deze prijs nog niet gebeurd is, wordt de prijs toegewezen aan de laatste rechtmatige eigenaar (Dit kan eventueel een persoon zijn die op hetzelfde evenement in slaap gevallen is). Het Organizerend committee zal verder ook stappen ondernemen om te voorzien in een gepaste vertaling van het reglement.
+
 
 ## In het geval van betwistingen
 
 In het geval van betwistingen heeft het organizerende committee altijd het laatste woord. Beslissingen zullen unaniem genomen worden.
 
-## Uitbreiding van het Organizerende committee:
 
-Het organizerende committee zal altijd aangevuld worden tot minstens 4 leden. Nieuwe leden van het Organizerende Committee moeten worden voorgedragen door zittende leden met minstens een jaar ancienniteit. Na voordracht van een een kandidaat-lid vindt er een (niet-anonieme) stemming plaats via internet of in persona (specifieke medium en details van de procedure worden beslist door de voorzitter of zijn plaatsvervanger). Een kandidaat lid zal slechts aanvaard worden bij het behalen van minstens 1/3 + 1 van de stemmen uitgebracht door het Organizerende committee.
+## Aanpassingen aan het reglement.
 
-## Organizerende committee (in alfabetische volgorde)
-- Broos Stefan (Voorzitter) (2014-2018)
-- Debusschere Tom (2014-2018)
-- De Vry Michiel (EreGeneraal) (2015-2018)
-- Vanderfaeillie Dieter (Secretaris) (2014-2018)
+Een minimum van 74% van de uitgebrachte stemmen is vereist (met een minimum van 3 stemmen) om veranderingen aan te brengen in de de basisreglementering. Dit dient uiterlijk in een termijn van 2 maanden te gebeuren na het indienen van deze motie. Het volledige reglement dient wel nog eerst unaniem goedgekeurd worden door het originele Organizerende committee.
+
 
 ## Lijst van (voorgaande) titelverdedigers
 - Verbeke Alexander (07-02-2014 - 30-01-2015)
